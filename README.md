@@ -49,4 +49,3 @@ If you have any feedback or questions, feel free to reach out:
 
 ---
 
-© 2025 Sanyogita Ingale. All rights reserved.
